@@ -1,2 +1,2 @@
 # emeraldcocoavalley
-Emerald Cocoa Valley est un projet intégré unique en Côte d’Ivoire, alliant production durable de cacao, transformation locale, tourisme écoresponsable et développement territorial. Nous valorisons le terroir ivoirien, l’innovation agricole et l’impact social.
+Emerald Cocoa Valley is an integrated project for sustainable cocoa valorization in Côte d’Ivoire, combining plantation, local processing, rural tourism, and socio-economic development.
